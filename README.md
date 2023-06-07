@@ -1,6 +1,7 @@
 # 给个网址能用的2023,给个能用的网址,2023填空兄弟们都懂
 
-< a href=" http://www.baidu.com/link?url=ok3_Ml5QdPpOWDUDT8PseJcBKYiYUthhvs1MDf_XWaxIqoOiiz3h9rK40scs4rg4&wd">-点/此/进/入/观/看/入/口/</ a>
+最/新/观/看/入/口/ http://www.baidu.com/link?url=ok3_Ml5QdPpOWDUDT8PseJcBKYiYUthhvs1MDf_XWaxIqoOiiz3h9rK40scs4rg4&wd
+
 
  女儿十三岁时，与忠平伯府嫡次子谢启临定亲，哪知道临出阁了，谢启临突然找到“真爱”，跟“真爱”私奔了。害得外面都在传，她家姑娘是个草包，连一个丫鬟都比不上。不然堂堂伯爷府的公子为什么宁可跟一个上不得台面的女人私奔，也不跟她成亲？
     后来谢启临虽然被找了回来，但两家婚事黄了，从此两家人也不再来往，差点没成为仇人。
